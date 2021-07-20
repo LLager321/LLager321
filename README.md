@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Cezary Borkowski @LLager321
+- 👀 I’m interested in computer science, programming and of course gaming
+- 🌱 I’m currently learning many different things
